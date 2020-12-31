@@ -4,3 +4,8 @@
 
 
 ## [Group Submissions](https://github.com/ramiz-rahman/g_7_bucse_707_fall_2020/blob/main/submissions.md)
+
+## Individual Submission
+
+*Submission 3*: https://youtu.be/FrNeOrdCss8
+
